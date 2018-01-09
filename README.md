@@ -1,3 +1,3 @@
 # Prezentaciq
 po istoriq
-fggrdg
+jjjjjkj
