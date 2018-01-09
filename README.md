@@ -1,0 +1,2 @@
+# Prezentaciq
+po istoriq
